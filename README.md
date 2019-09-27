@@ -12,7 +12,7 @@
 
   # Directions
     1. Insert the strawberries, water, sugar, ice, and lime into the blender
-    2.Liquify and serve!
+    2. Liquify and serve!
     3. This step is optional, but you can strain the drink in order to remove any pulp or seeds from the strawberry
   # Where to Find these Ingredients
   * https://stopandshop.com/
